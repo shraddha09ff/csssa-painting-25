@@ -1,1 +1,0 @@
-# csssa-painting-25
